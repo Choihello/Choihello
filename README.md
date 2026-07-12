@@ -21,4 +21,4 @@
 
 ## 연락
 
-- Threads · [@choihello29](https://www.threads.net/@choihello29)
+- Threads · [@choihellolab](https://www.threads.net/@choihellolab)
